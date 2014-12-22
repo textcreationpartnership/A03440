@@ -36,7 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-A treatise entitled the Path waye to the towre of perfection Compiled by Myles Huggarde, seruant to
 1. To the Reader.
 
 #####Body#####
